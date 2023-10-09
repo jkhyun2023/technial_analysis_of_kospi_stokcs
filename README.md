@@ -1,0 +1,1 @@
+# technial_analysis_of_kospi_stokcs
